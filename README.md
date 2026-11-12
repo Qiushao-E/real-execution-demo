@@ -28,7 +28,9 @@ https://github.com/user-attachments/assets/09c53568-efc9-48e9-9228-6dfe1292b14a
 
 ### Duck ID
 
-https://github.com/user-attachments/assets/c6146bf1-7b09-4e32-9731-f102f933a312
+
+
+https://github.com/user-attachments/assets/d76b1004-8c12-4942-83c6-9c259acfc6b7
 
 
 
@@ -39,9 +41,7 @@ https://github.com/user-attachments/assets/c6146bf1-7b09-4e32-9731-f102f933a312
 
 
 
-
-
-https://github.com/user-attachments/assets/c4c943a6-37f1-4ea2-88fd-fd933323b577
+https://github.com/user-attachments/assets/7ec58621-600b-410e-8760-045f092aeb93
 
 
 
